@@ -1,4 +1,3 @@
-blog
-====
+![](http://i.creativecommons.org/l/by/3.0/88x31.png)
 
-Personal blog
+This work is licensed under a [Creative Commons Attribution 4.0 International License](https://creativecommons.org/licenses/by/4.0/deed.en_US).
