@@ -17,23 +17,23 @@ Chapter 3 reviews prosecutions and convictions made according to this and simila
 ## Rebuttal of main points
 This section of the essay aims to dispell some misinformed statements that Heiss' paper and its followers make.
 
-* The law never mentions or uses the word gay, lesbian, homosexual or any other LGBT identifier.
-  The first edition of the law contained the word 'homosexual', and it's clearly directed at LGBT community as openly homophobic authors of the law confirmed in multiple interviews.
+* The law never mentions or uses the word gay, lesbian, homosexual or any other LGBT identifier.  
+The first edition of the law contained the word 'homosexual', and it's clearly directed at LGBT community as openly homophobic authors of the law confirmed in multiple interviews.
 
-* Only propaganda to children is banned.
-  Any public place may potentially have children, so any public pro-LGBT action is banned. You are allowed to run a gay pride in your house or in a gay club, for instance.
+* Only propaganda to children is banned.  
+Any public place may potentially have children, so any public pro-LGBT action is banned. You are allowed to run a gay pride in your house or in a gay club, for instance.
 
-* Russia is actually expanding protections of members of the LGBT community.
-  No action whatsoever has been taken in this direction. On the contrary, the hate towards LGBT people is supported and encouraged by the government. Some examples:
+* Russia is actually expanding protections of members of the LGBT community.  
+No action whatsoever has been taken in this direction. On the contrary, the hate towards LGBT people is supported and encouraged by the government. Some examples:
   - Dmitry Kiselev, a journalist who announced at prime time at the main Russian TV channel that 'gays' hearts must be burned', was promoted to general manager of *Russia Today* informational agency (a subsidiary of which is the well-known RT channel.)
   - Ivan Okhlobystin, an actor and former orthodox priest, who announced that 'gays must be burned alive in ovens' hasn't been charged with hate speech crime. The maximum penalty that awaits him is a $1000 fine.
   - Lena Klimova, the creator of a support group 'Children-404' for LGBT teenagers in a Russian social network is being accused of 'gay propaganda' and the group might be closed. This is particularly ironic, since the law supposedly seeks to 'protect the children'.
 
-* Almost no one was convicted according to this law.
-  This is technically correct. If you try to conduct any public pro-LGBT action (even a single-person picket with a rainbow flag), you will be arrested immediately, detained in police station for a couple of hours, a police protocol will be composed and you will be set free without any charges. This is a common tactic against all protestors in Russia, whatever their message is.
+* Almost no one was convicted according to this law.  
+This is technically correct. If you try to conduct any public pro-LGBT action (even a single-person picket with a rainbow flag), you will be arrested immediately, detained in police station for a couple of hours, a police protocol will be composed and you will be set free without any charges. This is a common tactic against all protestors in Russia, whatever their message is.
 
-* You cannot be fired from your job for being an LGBT individual in Russia.
-  Of course, no law allows this. But it doesn't stop alert citizens.
+* You cannot be fired from your job for being an LGBT individual in Russia.  
+Of course, no law allows this. But it doesn't stop alert citizens.
   - A gay teacher from Khabarovsk Alexander Ermoshkin had to resign after a homophobic campaign against him. Soon after, his contract with a university wasn't prolongated either. The editor of a local newspaper who published an article about this case was fined with $1500 for 'gay propaganda'.
   - A (heterosexual) Moscow teacher Ilya Kolmanovsky was fired for taking part in pro-LGBT actions. After a backlash he was employed back.
 
