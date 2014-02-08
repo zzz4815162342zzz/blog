@@ -12,7 +12,7 @@ Chapter 2 discusses the text of the infamous 'gay propaganda' law. While the ana
 
 I can't stress this second point enough. There is a Russian saying: 'The strictness of laws is compensated by optionality of following them'. As we'll see, this can work the other way around.
 
-Chapter 3 reviews prosecutions and convictions made according to this and similar laws in Russia in 2006-2013 years. It concludes that only 6 prosecutions and 2 convictions took place. While the numbers are incorrect, we will see that they have a grain of truth. Concluding thesis of the chapter, that *announcement* of Russian officials that they are *willing* to take all necessary measures to prevent homophobic crimes, is somehow a 'key development', particularly raises eyebrows and poses a question of author's bias.
+Chapter 3 reviews prosecutions and convictions made according to this and similar laws in Russia in 2006-2013 years. It concludes that only 6 prosecutions and 2 convictions took place. While the numbers are incorrect (this essay mentions two cases that Heiss omits, and those are only the ones that I personally read about in news), we will see that these ridiculously low numbers have a grain of truth and explain them. Concluding thesis of the chapter, that *announcement* of Russian officials that they are *willing* to take all necessary measures to prevent homophobic crimes, is somehow a 'key development', particularly raises eyebrows and poses a question of author's bias.
 
 ## Rebuttal of main points
 This section of the essay aims to dispell some misinformed statements that Heiss' paper and its followers make.
